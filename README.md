@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @seakkari
+- 👀 I’m interested in creating new development ideas
